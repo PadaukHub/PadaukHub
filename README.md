@@ -5,7 +5,8 @@
 - 📫 How to reach us 
 [Facebook]()
 [Youtube](https://youtube.com/@PadaukHub)
-(Telegram)[]
+[Telegram]() and
+[Discord]()
 Join for free lessons.
 
 We inform you when we create new online course in Myanmar Language.
